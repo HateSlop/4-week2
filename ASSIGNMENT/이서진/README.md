@@ -1,0 +1,1 @@
+![2주차과제](https://github.com/user-attachments/assets/bdc01722-b83e-4de4-8266-f317cb07b413)
